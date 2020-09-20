@@ -1,6 +1,6 @@
 1. Patrenkov Ivan
 2. * E-mail: ivanestver24@gmail.com;
-   * Phone: +7-905-602-80-87; 
+   * Phone: +7-905-XXX-XX-XX; 
 3. * My main purposes are to be the best developer, to participate in interesting international projects, to visit many countries and meet people from all over the world.
    * My strong points are purposefulness, always ready to help anybody, responsibility, ready to learn something new, and ready to study.
 4. I use (and used):
